@@ -1,16 +1,21 @@
-### Hi there 👋
+## oscarcederberg
 
-<!--
-**oscarcederberg/oscarcederberg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+dansade bredvid dig  
+ville gå hem vid fyra  
+men jag stannade till sju  
+utan att våga säga mer än hej  
+du är rätt ung, jag är äldre än du  
+men du röker så jag skulle säga att vi är plus minus noll  
 
-Here are some ideas to get you started:
+vi kommer att dö samtidigt, du och jag  
+vi kommer att dö samtidigt, du och jag  
+vi kommer att dö, dö  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+en hund jag kände dog för en vecka sen  
+och några dagar senare dog hans hundkamrat  
+de kände varann, det fanns ingen poäng att leva utan en bästa vän  
+jag förstod inte då men nu vet jag vem det kommer bli  
+
+vi kommer att dö samtidigt, du och jag  
+vi kommer att dö samtidigt, du och jag  
+vi kommer att dö, dö  
